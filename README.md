@@ -4,7 +4,7 @@
 - 📫 Me siga no instagram @livia_livrb
 - 😄 Pronomes: Ela/ Dela
 - ⚡ Curiosidades: Toco violino
-✩ ♬ ₊.🎧⋆☾⋆⁺₊✧
+- ✩ ♬ ₊.🎧⋆☾⋆⁺₊✧
 <!---
 Livia-reis/Livia-reis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
