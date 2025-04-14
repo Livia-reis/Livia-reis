@@ -1,6 +1,6 @@
 - 👋 Olá, Eu sou a @Livia-reis
 - 🎀 Estou interessada em aprender coisas novas
-- 👾 Atualmente estou cursendo desenvolvimento de sistemas
+- 👾 Atualmente estou cursando desenvolvimento de sistemas
 - 📫 Me siga no instagram @livia_livrb
 - 😄 Pronomes: Ela/ Dela
 - ⚡ Curiosidades: Toco violino
