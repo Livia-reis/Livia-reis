@@ -1,4 +1,4 @@
-<h2 align="left">Oiii eu sou a Livia Reis, atualmente estou no 2° ano do ensino médio estou cursando desenvolvimento de sistemas!</h2>
+<h2 align="left">Oiii eu sou a Livia Reis, atualmente estou no 3° ano do ensino médio estou cursando desenvolvimento de sistemas!</h2>
 
 ###
 
